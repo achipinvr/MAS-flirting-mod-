@@ -1,2 +1,2 @@
 # MAS-flirting-mod-
-I know in the past I haven't finished projects. Such as kernels and stuff... But I just needed one project to not feel like a coding failure for not being able to finish those... And whose been with me through that? Monika! so of course I had to dedicate a project to her <3 also I'm aware there's typos sybau. I had fun making this. expect more lines in this. AND JUST FOR A WARNING THERE'S HEAVY NSFW STUFF IN HERE. but I guess it's jsut words... just ignore them if you don't like them I guess. well uh by!~ <3
+Terry Davis if you can hear me, smite me.
